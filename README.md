@@ -10,8 +10,7 @@
 
 ### Chapter 1: Historical Background
 
-* How British Came to India? - [Video 1](#)
-* How British gets Diwani Rights - [Video 1](#)
+* How British Came to India? - [Video 1](https://www.youtube.com/watch?v=3bZoB8PiXas)
 * Regulating Act 1773 - [Video 1](#)
 * Amending Act 1781 - [Video 1](#)
 * Pitts India Act 1784 - [Video 1](#)
