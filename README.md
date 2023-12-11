@@ -15,4 +15,8 @@
 * Amending Act 1781 - [Video 1](#)
 * Pitts India Act 1784 - [Video 1](#)
 * Act of 1786 - [Video 1](#)
+* Charter Act of 1793 - [Video 1](#)
+* Charter Act of 1813 - [Video 1](#)
+* Charter Act of 1833 - [Video 1](#)
+* Charter Act of 1853 - [Video 1](#)
 
