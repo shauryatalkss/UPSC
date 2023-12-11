@@ -11,8 +11,8 @@
 ### Chapter 1: Historical Background
 
 * How British Came to India? - [Video 1](https://www.youtube.com/watch?v=3bZoB8PiXas)
-* Regulating Act 1773 - [Video 1](#)
-* Amending Act 1781 - [Video 1](#)
+* Regulating Act 1773 - [Video 1](https://www.youtube.com/watch?v=4N5gsuxVxv8&list=LL&index=2&t=3s)
+* Amending Act 1781 - [Video 1](https://www.youtube.com/watch?v=LF6DYouUSqs&list=LL&index=1)
 * Pitts India Act 1784 - [Video 1](#)
 * Act of 1786 - [Video 1](#)
 * Charter Act of 1793 - [Video 1](#)
