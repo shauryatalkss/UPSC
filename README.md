@@ -20,3 +20,12 @@
 * Charter Act of 1833 - [Video 1](#)
 * Charter Act of 1853 - [Video 1](#)
 
+* Government of India Act 1858 - [Video 1](#)
+* Indian Councils Act of 1861 - [Video 1](#)
+* Indian Councils Act of 1892 - [Video 1](#)
+* Indian Councils Act of 1909 - [Video 1](#)
+* Indian Councils Act of 1919 - [Video 1](#)
+* Indian Councils Act of 1935 - [Video 1](#)
+* Indian Independence Act of 1947 - [Video 1](#)
+
+
