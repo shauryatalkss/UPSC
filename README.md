@@ -8,4 +8,12 @@
 
 ## Part 1: Constitutional Framework
 
-* [How British Came to India?](#)
+### Chapter 1: Historical Background
+
+* How British Came to India? - [Video 1](#)
+* How British gets Diwani Rights - [Video 1](#)
+* Regulating Act 1773 - [Video 1](#)
+* Amending Act 1781 - [Video 1](#)
+* Pitts India Act 1784 - [Video 1](#)
+* Act of 1786 - [Video 1](#)
+
