@@ -28,5 +28,15 @@
 * [Indian Independence Act of 1947](https://www.youtube.com/watch?v=N4iAj44a9iM&list=LL&index=1)
 
 
-### Chapter 2: Make for 
+### Chapter 2: Making of the Constitution
 
+* [Demand for Constituent Assembly](#)
+* [Composition of Constituent Assembly](#)
+* [Working of Constituent Assembly](#)
+* [Committees of Consituent Assembly](#)
+* [Enactment of the Constitution](#)
+* [Enforcement of the Constitution](#)
+* [Experts Committee of the Congress](#)
+* [Criticism of Constituent Assembly](#)
+* [Important Names of Constitution](#)
+* [Hindi Text of Constitution](#)
