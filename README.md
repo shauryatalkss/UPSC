@@ -19,12 +19,14 @@
 * [Charter Act of 1813](https://www.youtube.com/watch?v=ou1vRVwq04E&list=LL&index=3) - [2](https://www.youtube.com/watch?v=htZEuvg_pJs&list=LL&index=2)
 * [Charter Act of 1833](https://www.youtube.com/watch?v=wCpQreDW-2M&t=1s)
 * [Charter Act of 1853](https://www.youtube.com/watch?v=uEtUysKi0Wg&t=127s)
-* [Government of India Act 1858](#)
-* [Indian Councils Act of 1861](#)
-* [Indian Councils Act of 1892](#)
-* [Indian Councils Act of 1909](#)
-* [Indian Councils Act of 1919](#)
-* [Indian Councils Act of 1935](#)
-* [Indian Independence Act of 1947](#)
+* [Government of India Act 1858](https://www.youtube.com/watch?v=O9200xOuJ3I&list=LL&index=8&t=13s)
+* [Indian Councils Act of 1861](https://www.youtube.com/watch?v=LqhEdLk4yJg&list=LL&index=7)
+* [Indian Councils Act of 1892](https://www.youtube.com/watch?v=uogz6tDyAHA&list=LL&index=6)
+* [Indian Councils Act of 1909](https://www.youtube.com/watch?v=xSMr8avi2xk&list=LL&index=5)
+* [Indian Councils Act of 1919](https://www.youtube.com/watch?v=AIqnDqyOLS4&list=LL&index=4)
+* [Indian Councils Act of 1935](https://www.youtube.com/watch?v=vuYiT6yhElI&list=LL&index=2)
+* [Indian Independence Act of 1947](https://www.youtube.com/watch?v=N4iAj44a9iM&list=LL&index=1)
 
+
+### Chapter 2: Make for 
 
