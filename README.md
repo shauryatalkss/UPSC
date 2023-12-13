@@ -39,3 +39,12 @@
 * [Experts Committee of the Congress](https://www.youtube.com/watch?v=RUv9rdBx0Sc&list=LL&index=3&t=842s)
 * [Criticism of Constituent Assembly](https://www.youtube.com/watch?v=RUv9rdBx0Sc&list=LL&index=4&t=1085s)
 * [Hindi Text of Constitution](https://www.youtube.com/watch?v=RUv9rdBx0Sc&list=LL&index=5&t=2025s)
+
+
+### Chapter 3: Concept of the Constitution
+
+* [Meaning](#)
+* [Functions](#)
+* [Qualities](#)
+* [Classification](#)
+* [Constitutionalism & constitutional govt.](#)
