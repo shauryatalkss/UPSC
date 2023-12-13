@@ -33,7 +33,7 @@
 * [Demand for Constituent Assembly](https://www.youtube.com/watch?v=HvRJeodVc3s)
 * [Composition of Constituent Assembly](https://www.youtube.com/watch?v=HvRJeodVc3s&t=500s)
 * [Working of Constituent Assembly](https://www.youtube.com/watch?v=HvRJeodVc3s&t=1280s)
-* [Committees of Consituent Assembly](https://www.youtube.com/watch?v=HvRJeodVc3s&t=2460s)
+* [Committees of Consituent Assembly](https://www.youtube.com/watch?v=HvRJeodVc3s&t=2490s)
 * [Enactment of the Constitution](https://www.youtube.com/watch?v=RUv9rdBx0Sc&list=LL&index=1)
 * [Enforcement of the Constitution](https://www.youtube.com/watch?v=RUv9rdBx0Sc&list=LL&index=2&t=420s)
 * [Experts Committee of the Congress](https://www.youtube.com/watch?v=RUv9rdBx0Sc&list=LL&index=3&t=842s)
