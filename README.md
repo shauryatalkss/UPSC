@@ -43,8 +43,11 @@
 
 ### Chapter 3: Concept of the Constitution
 
-* [Meaning](#)
-* [Functions](#)
-* [Qualities](#)
-* [Classification](#)
-* [Constitutionalism & constitutional govt.](#)
+* [Meaning](https://www.youtube.com/watch?v=-VPsL8pIdug&list=LL&index=4&t=3s)
+* [Functions](https://www.youtube.com/watch?v=u8n27nvtQGc&list=LL&index=5)
+* [Qualities](https://www.youtube.com/watch?v=34UN5GmgOhM&list=LL&index=3)
+* [Classification](https://www.youtube.com/watch?v=Yjos-Ts0s70&list=LL&index=2)
+* [Constitutionalism & constitutional govt.](https://www.youtube.com/watch?v=Uxa6FObDoRs&list=LL&index=1)
+
+
+### Chapter 4: Concept of the Constitution
