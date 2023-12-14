@@ -50,4 +50,9 @@
 * [Constitutionalism & constitutional govt.](https://www.youtube.com/watch?v=Uxa6FObDoRs&list=LL&index=1)
 
 
-### Chapter 4: Concept of the Constitution
+### Chapter 4: Salient Feature of Constitution
+
+* [Salient feature of Constitution](https://www.youtube.com/watch?v=x3EAIF0jBsw&t=1s)
+* [Criticism of Constitution](https://www.youtube.com/watch?v=46Mw4uDKapQ&t=1s)
+* [Parts, Articles, Schedule of Constitution](https://www.youtube.com/watch?v=ajWWl3tv4vY&t=1s)
+* [Source of Indian Constitution](https://www.youtube.com/watch?v=f9bsEZ3XMG4)
